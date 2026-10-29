@@ -4,7 +4,10 @@
 
 **Spider Man** is my favorite movie, because its intense to watch.
 
-the suspense scenes are terriflying
-they help each other
-they have plot twist
+-the suspense scenes are terriflying
+-they help each other
+-they have plot twist
 
+> whatever it takes to bring everyone back and defeat enemy.
+
+My favorite movie is "Spider Man" because I enjoy watching superhero and sci-fi action stories. 
